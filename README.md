@@ -4,6 +4,19 @@
 💬 **Güncel maç linkleri, kesintisiz yayınlar ve anlık bildirimler için Telegram kanalımıza hemen katılın!**  
 [👉 Tıkla ve Katıl](https://prostreamstv.com/turkish-super-lig/?twr)  
 
+
+---
+
+<center>
+  <br>
+  <a href="https://prostreamstv.com/turkish-super-lig/?twr" title="Canlı Maç Giriş">
+    <img src="https://i.ibb.co/5K7Ks6w/zzzz3.gif" alt="Canlı Maç İzle" style="max-width:100%; border:2px solid #ddd; border-radius:10px;">
+  </a>
+</center>
+
+
+---
+
 ---
 
 ## 🔥 **Canlı Yayın |GS Galatasaray 🆚 Adana Demirspor Canlı izle maçı justin tv şifresiz (Süper Lig) Adana Demirspor - Galatasaray CANLI YAYIN maçı canlı izle 09 Şubat 2025!** ⚽🏆  
